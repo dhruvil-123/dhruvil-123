@@ -1,5 +1,5 @@
 # 💫 About Me:
-😄 Pronouns: He<br>- 🔭 I’m currently building Dating App (Rayzi).<br>- 🌱 I’m currently learning more about Back-end Development.<br>- 🤔 I’m currently learning for a new Android Technology.<br>- 💬 Ask me about Android or any tech-related stuff.<br>- 📫 How to reach me: Check social links below.<br>- ⚡ Fun fact: I spend almost 8 hours listening to songs every day.
+😄 Pronouns: He<br>- 🔭 I’m currently building Dating App (Rayzi).<br>- 🌱 I’m currently learning more about Back-end Development.<br>- 🤔 I’m currently learning for a new Android Technology.<br>- 💬 Ask me about Android or any tech-related stuff.<br>- 📫 How to reach me: Check social links below.<br>- ⚡ Fun fact: I spend most time to research new things.
 
 
 ## 🌐 Socials:
